@@ -1,2 +1,2 @@
 # myWebsite
-🔥built my first web application website 🔥
+🔥built my first web application website🤓
